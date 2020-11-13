@@ -1,4 +1,4 @@
-### Hi there 👋, My nane is Wernen!
+### Hi there 👋
 
 
 <p align="center>
